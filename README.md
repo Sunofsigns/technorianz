@@ -1,0 +1,2 @@
+# technorianz
+Tecnic orentation Zoom 
